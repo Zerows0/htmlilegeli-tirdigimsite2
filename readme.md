@@ -1,1 +1,0 @@
-![Görsel](https://img.imgyukle.com/2024/02/15/yzTDd1.png)
